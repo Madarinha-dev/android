@@ -1,2 +1,2 @@
 # Android
-so dia.
+eu espero que de certo mesmo pq so jesus.
